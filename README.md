@@ -1,0 +1,2 @@
+# scums
+Shame on humanity
